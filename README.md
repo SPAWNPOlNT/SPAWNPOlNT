@@ -1,1 +1,5 @@
-![azure-and-twotime-azurewrath-forsaken-ezgif com-optimize](https://github.com/user-attachments/assets/5ec53e58-f1ce-40dc-bacc-383cf507526a)
+
+![vmaoirpeee-ezgif com-optipng (1)](https://github.com/user-attachments/assets/a84e59de-e22c-4809-a683-5825f79fbec9)
+<p align="center">
+AZURETIME WILL ALWAYS BE CANON LIL BRO 💀💀💀
+</p>
